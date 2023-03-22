@@ -1,6 +1,6 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Dzul Fikri**.\
+Perkenalkan nama saya **Dzul Fikri**
 
 Saya seorang **Mahasiswa Teknik Informatika** di [STMIK AMIKOM SOLO](https://www.amikomsolo.ac.id/)
 
