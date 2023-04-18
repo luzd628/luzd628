@@ -6,7 +6,7 @@ Iam a**Student Informatics Engineering** in [STMIK AMIKOM SOLO](https://www.amik
 
 At this time iam joining on bangkit 2023 program [Bangkit2023](https://dashboard.bangkit.academy/login)
 
-If you interested , you can hit me up on [Linkedin](https://www.linkedin.com/in/dzul-fikri-7ab613271/) ku ya.
+If you interested , you can hit me up on my [Linkedin](https://www.linkedin.com/in/dzul-fikri-7ab613271/).
 
 <p align="left">
 <a href="https://github.com/luzd628">
