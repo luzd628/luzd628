@@ -2,7 +2,7 @@
 
 My name is **Dzul Fikri**
 
-Iam a**Student Informatics Engineering** in [STMIK AMIKOM SOLO](https://www.amikomsolo.ac.id/)
+Iam a **Student Informatics Engineering** in [STMIK AMIKOM SOLO](https://www.amikomsolo.ac.id/)
 
 At this time iam joining on bangkit 2023 program [Bangkit2023](https://dashboard.bangkit.academy/login)
 
