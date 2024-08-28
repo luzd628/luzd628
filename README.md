@@ -4,7 +4,7 @@ My name is **Dzul Fikri**
 
 Iam a **Student Informatics Engineering** in [STMIK AMIKOM SOLO](https://www.amikomsolo.ac.id/)
 
-Bangkit 2023 batch 1 Graduated student [Bangkit2023](https://dashboard.bangkit.academy/login)
+Graduated from Bangkit 2023 batch 1 [Bangkit2023]((https://grow.google/intl/id_id/bangkit/))
 
 If you interested , you can hit me up on my [Linkedin](https://www.linkedin.com/in/dzul-fikri-7ab613271/).
 
